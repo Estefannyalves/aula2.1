@@ -1,4 +1,4 @@
 Iam Somerhalder
-Bruno Gagliasso
+Tony Ramos
 Bruna Marquezine
-Fernanda Montenegro
+Fernanda Montenego
