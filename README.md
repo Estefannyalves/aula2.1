@@ -1,1 +1,3 @@
-# aula2.1
+Iam Somerhalder
+Nina Dobrev
+Bruna Marquezine
