@@ -1,3 +1,4 @@
 Iam Somerhalder
-Nina Dobrev
+Bruno Gagliasso
 Bruna Marquezine
+Fernanda Montenegro
