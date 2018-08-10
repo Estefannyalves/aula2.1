@@ -1,3 +1,4 @@
 Iam Somerhalder
-Nina Dobrev
+Tony Ramos
 Bruna Marquezine
+Fernanda Montenego
